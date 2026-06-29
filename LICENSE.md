@@ -1,4 +1,4 @@
-# 
+# Avanzado TreeSize plantillas para Mac OS | Seguro TreeSize plantillas para PC Windows. Con gestión de ventanas y compresión de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
